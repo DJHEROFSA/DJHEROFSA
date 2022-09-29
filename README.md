@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DJHEROFSA
+- 👀 I’m interested in ...aprender!
+- 🌱 I’m currently learning ...faço ciências da computação e estou esplorando o mundo  DEV
+- 💞️ I’m looking to collaborate on ... algo que faca sentido nesse mundo louco!
+- 📫 How to reach me ... cmocoutinho@hotmail.com
